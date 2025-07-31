@@ -2,4 +2,4 @@
 
 aftoncest always forgets mrs afton. while this isnt an aftoncest drawing by any means, i just love seeing her <3
 
-also i unfortunately couldnt find the artist. reverse image searching got me nothing, and i cant make out the signature :c
+art by @gumandarim on twitter(?)
